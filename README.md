@@ -1,6 +1,7 @@
 # international-client-relationship-management-building-new-accounts
 
-<img width="2642" height="2380" alt="image" src="https://github.com/user-attachments/assets/9d51e828-af2a-490a-961f-13ed5ebad5a9" />
+<img width="1536" height="1024" alt="France Travel Partnership Concept" src="https://github.com/user-attachments/assets/ba83e582-3a9b-46f1-98d0-fbbd4c088cb1" />
+
 # Strategic Partnerships & Service Innovation
 
 **Focus:** Key account management · Customer loyalty · Partnership development · Service innovation  
